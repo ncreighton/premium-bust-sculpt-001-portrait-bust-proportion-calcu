@@ -1,0 +1,2 @@
+# premium-bust-sculpt-001-portrait-bust-proportion-calcu
+Stop guessing and wasting clay—every sculptor knows the agony of a bust that's just slightly off. The Portrait Bust Proportion Calculator is your digital sculptor's assistant, turning tedious math into instant, repeatable precision.  This Notion template replaces messy reference charts and mental arithmetic with a clean, automated system. Simply in
